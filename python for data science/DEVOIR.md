@@ -1,0 +1,8 @@
+# DEVOIRS 
+
+## EXO 26
+## EXO 28
+## EXO 29
+## EXO 30
+## EXO 34
+
